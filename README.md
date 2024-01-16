@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **sararocha-07@hotmail.com**
 
-- 📄 Know about my experiences [https://www.linkedin.com/in/sara-caroline-da-rocha-b58884169/details/experience/](https://www.linkedin.com/in/sara-caroline-da-rocha-b58884169/details/experience/)
+- 📄 Know about my experiences [https://www.linkedin.com/in/sara-caroline-da-rocha-b58884169/](https://www.linkedin.com/in/sara-caroline-da-rocha-b58884169/)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
